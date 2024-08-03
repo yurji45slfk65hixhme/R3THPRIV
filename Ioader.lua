@@ -1,1 +1,1 @@
-.
+TYURHTBDGF
